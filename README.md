@@ -1,0 +1,3 @@
+- 👋 Hi, I’m E.Kortyla#1308
+- My Discord Server
+- https://discord.gg/kNmkGYayHD
