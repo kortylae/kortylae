@@ -1,3 +1,3 @@
-- 👋 Hi, I’m E.Kortyla#1308
+- 👋 Hi, I’m kortylae.pl#8004
 - My Discord Server
-- https://discord.gg/kNmkGYayHD
+- https://discord.gg/cYx8sFMcG8
